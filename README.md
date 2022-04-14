@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GingiGaming
+- 👀 I’m interested in gaming, coding and content creation
+- 📫 How to reach me: you can dm me on ig @gingi_gaming.official
